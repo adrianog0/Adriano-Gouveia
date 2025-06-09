@@ -17,7 +17,7 @@
 
 
 ## 📫 Contato
-linkedin.com/in/adrianogou 
+LinkedIn: linkedin.com/in/adrianogou 
 📧 adriano_tb18@hotmail.com
 
 ---
